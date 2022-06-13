@@ -1,2 +1,2 @@
-# Metavarse
+# Metaverse
 
